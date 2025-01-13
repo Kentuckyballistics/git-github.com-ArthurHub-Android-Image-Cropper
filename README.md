@@ -1,1 +1,1 @@
-# git-github.com-ArthurHub-Android-Image-Cropper
+KENTUCKY-BALLISTICS-ALLOW ONLY MY APPROVAL
